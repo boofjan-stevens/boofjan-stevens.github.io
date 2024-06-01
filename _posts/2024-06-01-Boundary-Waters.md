@@ -34,8 +34,13 @@ Psychotic subjectivity is a valuable way of interpreting the world. If time is t
 **Works Cited**
 
 Lacan, J. (2007). Ecrits (B. Fink, Trans.). WW Norton.
+
 Leudar, I., & Thomas, P. (2000). Voices of reason, voices of insanity: Studies of verbal hallucinations. Taylor & Frances/Routledge.
+
 https://www.frontiersin.org/articles/10.3389/fpsyg.2015.00664/full
+
 https://www.freudianletteruk.org/papers/paper-2-the-ego-in-neurosis-and-psychosis
+
 https://bmcpsychiatry.biomedcentral.com/articles/10.1186/s12888-022-04022-x
+
 https://journalofethics.ama-assn.org/article/deinstitutionalization-people-mental-illness-causes-and-consequences/2013-10
