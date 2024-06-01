@@ -4,7 +4,7 @@ title: who is boofjan stevens?
 permalink: /about/
 ---
 
-Boojfan Stevens is a persona and project in the works for years, created by Chicago-based writer Cody Dom. He hopes you will enjoy the *illusory brickwalls* phase of his project to express anguish and passion for all that is and is not. Other than writing essays on philosophy and poetry, Cody is interested in high fashion and loves to style clothing. Recently he has been upcycling his old clothes by painting and sewing them. 
+Boofjan Stevens is a persona and project in the works for years, created by Chicago-based writer Cody Dom. He hopes you will enjoy the *illusory brickwalls* phase of his project to express anguish and passion for all that is and is not. Other than writing essays on philosophy and poetry, Cody is interested in high fashion and loves to style clothing. Recently he has been upcycling his old clothes by painting and sewing them. 
 
 ### writing services
 
