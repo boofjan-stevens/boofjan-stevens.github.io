@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Psychosis (Living in the Boundary Waters)
+title: 2024-06-01-Boundary-Waters.md
 ---
 ### Psychosis: Living in the Boundary Waters
 
