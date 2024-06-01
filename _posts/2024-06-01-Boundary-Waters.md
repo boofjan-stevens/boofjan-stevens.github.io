@@ -2,6 +2,7 @@
 layout: post
 title: Psychosis (Living in the Boundary Waters)
 ---
+### Psychosis: Living in the Boundary Waters
 
 *An exploration of psychosis through language, personal experience, and Lacan.*
 
