@@ -9,7 +9,7 @@ Boofjan Stevens is a persona and project in the works for years, created by Chic
 ### substack
 
 The Substack contains essays not released elsewhere. If you like the writing, consider helping Cody pay his bills. He is a medical assistant and is working in transgender healthcare. Not lucrative!
-[illusory brickwalls](goto:https://boofjanstevens.substack.com/)
+[illusory brickwalls](https://boofjanstevens.substack.com/)
 
 ### writing services
 
